@@ -1,4 +1,7 @@
-# taz-helloworld
-guuyyys this js a test do not give a fuahahadge aabout it
-<img width="200" height="200" alt="newjeans-right-now-newjeans-ppg" src="https://github.com/user-attachments/assets/f5a95563-e51b-4270-880e-6e2ec59e1b26" />
+SOCIALS 😼
 
+- TIKTOK - @prodtazzy
+- YOUTUBE - @tazzybedumb
+- STRAWPAGE - https://tazcoolpage.straw.page
+- ATABOOK - https://tazzy.atabook.org/
+<img width="168" height="268" alt="pony-town-taz-dance-5-blinking-padded-ponyplush-4x" src="https://github.com/user-attachments/assets/d70a2f5f-c347-4b64-a2dc-6cfce2ea2493" />
